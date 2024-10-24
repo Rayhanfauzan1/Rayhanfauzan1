@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Rayhanfauzan1
-- 👀 I’m interested with Jahra
+- 👀 I’m interested with swimming
 - 🌱 I’m currently learning Cosmology and Astronomy
 - ⚡ Fun fact: im like to playing game 24/7
 
